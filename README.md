@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning javascript
 - 💞️ I’m looking to collaborate on gaming
-- 📫 How to reach me gamingwww@proton.me
+- 📫 How to reach me gamingwwww@proton.me
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: My username should be Commander
 
